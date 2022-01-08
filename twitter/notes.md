@@ -1,7 +1,7 @@
 
-# Nädal 1  - 2022
+# Nädal 1 2022
 
-twitter search viron lang:fi
+
 
 ![image](https://user-images.githubusercontent.com/25908778/148662992-8141d65e-7a8e-485e-8a66-27f5333c71cc.png)
 
@@ -32,3 +32,15 @@ https://twitter.com/lauri_linden/status/1479210705647816706
 https://twitter.com/MikaAaltola/status/1479041327052607493
 https://twitter.com/Virkki5/status/1479926684103196674
 https://twitter.com/raskaspee/status/1477997693209305091
+
+# Kes? Kuidas? Miks?
+
+Millest nad Twitteris räägivad?
+
+twitter search:  viron lang:fi
+twitter search:  virossa lang:fi
+
+Kes: toivo.ellakvere@gmail.com
+
+Miks: et jälgida huvaitavaid vestlusi Soome lahe siin ja sealpool
+
