@@ -33,6 +33,29 @@ https://twitter.com/MikaAaltola/status/1479041327052607493
 https://twitter.com/Virkki5/status/1479926684103196674
 https://twitter.com/raskaspee/status/1477997693209305091
 
+![image](https://user-images.githubusercontent.com/25908778/148697946-fd3c0660-4689-4e80-8232-d6d63d8f489b.png)
+
+Märksõnad: LauriRandla, mineraalvesi, kiirtestid, maksud, digiallkri, IDkaart, koroona, nato, nato, haiglaõed, kasiinod, kiirtestid, maksud #vasakliit, tetsimineKoolis, veneAeg, kiirtestid, kiirtestid
+
+https://twitter.com/search?q=virossa%20lang%3Afi&src=typed_query&f=live
+https://twitter.com/EkstromPatrick/status/1479105712076693511
+https://twitter.com/isosavi/status/1478727458572677123
+https://twitter.com/PekkarinenElina/status/1478482673635143688
+https://twitter.com/leino_jyri/status/1478276701738176513
+https://twitter.com/vpvainio/status/1477413678051958791
+https://twitter.com/JaakkoHaataja/status/1479371603758792710
+https://twitter.com/petricederlof/status/1479359570321543168
+https://twitter.com/JuhaRistamaki/status/1479345044473667586
+https://twitter.com/RogerKulmala/status/1479473944709242887
+https://twitter.com/LOikkonen/status/1480179638429274114
+https://twitter.com/AnuPeltola22/status/1480158911814672384
+https://twitter.com/MinnaFranck/status/1480133735572021253
+https://twitter.com/Tanelihamalaine/status/1480130736757907459
+https://twitter.com/SatuToivonen3/status/1480107254686883843
+https://twitter.com/riiajarvenpaa/status/1480067131706425345
+https://twitter.com/SiljaHu/status/1479602838972125191
+https://twitter.com/PirtaHotulainen/status/1479551289902219273
+
 # Kes? Kuidas? Miks?
 
 Millest nad Twitteris räägivad?
