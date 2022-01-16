@@ -6,7 +6,7 @@ title: Eesti kajastused soomekeelses Twitteris 2022
 
 ![image](https://user-images.githubusercontent.com/25908778/149676961-5fb98903-a864-4037-9785-7ee3ff422d1e.png)
 
-elekter, nato, nato, koroona (piiriületus), SauliNiinistö, elekter (tootmine), tunnel, nato, startupid (bolt), kroona (vaktsineermine), ettevõtlus (tavad), erakondadeRahastamine (ekre), võrkpall (FabioSoli), ajakirjandusVabadus, Nato (Venemaa)
+Märksõnad: elekter, nato, nato, koroona (piiriületus), SauliNiinistö, elekter (tootmine), tunnel, nato, startupid (bolt), kroona (vaktsineermine), ettevõtlus (tavad), erakondadeRahastamine (ekre), võrkpall (FabioSoli), ajakirjandusVabadus, Nato (Venemaa)
 
 https://twitter.com/search?q=viron%20lang%3Afi&src=typed_query&f=live
 https://twitter.com/henrikytonen/status/1482316330535735298
@@ -92,4 +92,4 @@ Kes: toivo.ellakvere@gmail.com
 
 Miks: et jälgida huvaitavaid vestlusi Soome lahe siin ja sealpool
 
-Klikitavad Twitteri lingid: https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md
+Klikitavad Twitteri lingid: [https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md](https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md)
