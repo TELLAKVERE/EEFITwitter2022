@@ -2,7 +2,6 @@
 title: Eesti kajastused soomekeelses Twitteris 2022
 ---
 
-<link rel="shortcut icon" type="image/x-icon" href="pildid/eesti_syda.ico">
 
 # Nädal 1 2022
 
@@ -66,9 +65,11 @@ https://twitter.com/PirtaHotulainen/status/1479551289902219273
 Millest nad Twitteris räägivad?
 
 twitter search:  viron lang:fi
+
 twitter search:  virossa lang:fi
 
 Kes: toivo.ellakvere@gmail.com
 
 Miks: et jälgida huvaitavaid vestlusi Soome lahe siin ja sealpool
 
+Klikitavad Twitteri lingid: https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md
