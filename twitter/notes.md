@@ -1,5 +1,5 @@
 
-%  Eesti kajastused soomekeelses Twitteris 2022
+# Eesti kajastused soomekeelses Twitteris 2022
 
 # Nädal 2 2022
 
