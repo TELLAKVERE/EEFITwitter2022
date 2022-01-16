@@ -2,6 +2,26 @@
 title: Eesti kajastused soomekeelses Twitteris 2022
 ---
 
+# Nädal 2 2022
+
+![image](https://user-images.githubusercontent.com/25908778/149676961-5fb98903-a864-4037-9785-7ee3ff422d1e.png)
+
+elekter, nato, nato, koroona (piiriületus), SauliNiinistö, elekter (tootmine), tunnel, nato, startupid (bolt), kroona (vaktsineermine), ettevõtlus (tavad), erakondadeRahastamine (ekre), võrkpall (FabioSoli), ajakirjandusVabadus, Nato (Venemaa)
+
+https://twitter.com/search?q=viron%20lang%3Afi&src=typed_query&f=live
+https://twitter.com/henrikytonen/status/1482316330535735298
+https://twitter.com/vilenpaula/status/1482283882573611009
+https://twitter.com/BijanRezai/status/1481987062526091264
+https://twitter.com/MikkoNummelin/status/1481957206199353350
+https://twitter.com/niinisto/status/1481974010866974725
+https://twitter.com/JarkkoVesa/status/1481950368661577733
+https://twitter.com/Valtonenk/status/1481140859773108226
+https://twitter.com/EskoHaapaniemi/status/1481029078002061315
+https://twitter.com/MMurdvee/status/1480783619614466048
+https://twitter.com/HeikkiHellman/status/1480639491459239939
+https://twitter.com/HeikkiKiiskinen/status/1480547361462050823
+https://twitter.com/MikkoNummelin/status/1482417907409817605
+
 
 # Nädal 1 2022
 
