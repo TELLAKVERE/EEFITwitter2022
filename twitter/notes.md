@@ -3,6 +3,26 @@
 
 # Nädal 2 2022
 
+![image](https://user-images.githubusercontent.com/25908778/149833105-76009338-c7a1-4e88-a34f-c5f18a64e6a6.png)
+
+Märksõnad: koroona (surmad, lapsed), Nato, statistika (emakeel, õpe), Nato, eleker (tootmine), reisimine, elekter (tootmine), koroona (surmad, lapsed), hundid (looduskaitse), Koroona (pass), bensiinihind, relvakaubandus (relvaload), Nato (Taani, lennukid), lennukid
+
+https://twitter.com/search?q=virossa%20lang%3Afi&src=typed_query&f=live
+https://twitter.com/HeikkiOjala/status/1482380577529647112
+https://twitter.com/AnttiKaariainen/status/1482270582901256194
+https://twitter.com/kaapohaapanen/status/1482054612886736897
+https://twitter.com/KanniainenVesa/status/1482021545610555392
+https://twitter.com/petri_nyberg/status/1481950366010908672
+https://twitter.com/todeveni/status/1481896901934993409
+https://twitter.com/KooSamuli/status/1481893075572215811
+https://twitter.com/jarnoln/status/1481255584280326147
+https://twitter.com/lasleh/status/1481166980489138182
+https://twitter.com/MLuonuansuu/status/1480819473368109057
+https://twitter.com/mekri/status/1480620196364795921
+https://twitter.com/AnnukkaOksanen/status/1480510948481945601
+https://twitter.com/TeroTweet/status/1482439833859596291
+
+
 ![image](https://user-images.githubusercontent.com/25908778/149676961-5fb98903-a864-4037-9785-7ee3ff422d1e.png)
 
 Märksõnad: elekter, nato, nato, koroona (piiriületus), SauliNiinistö, elekter (tootmine), tunnel, nato, startupid (bolt), kroona (vaktsineermine), ettevõtlus (tavad), erakondadeRahastamine (ekre), võrkpall (FabioSoli), ajakirjandusVabadus, Nato (Venemaa)
