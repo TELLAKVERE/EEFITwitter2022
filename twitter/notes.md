@@ -1,6 +1,65 @@
 
 # Eesti kajastused soomekeelses Twitteris   
 
+# Nädal 3 2022
+
+![image](https://user-images.githubusercontent.com/25908778/150692157-baf6f0c3-8f7c-4910-bcfb-5495f75edce9.png)
+
+
+
+https://twitter.com/an_toni/status/1484908857763811332
+autosõit (kiiruspiirangud)
+
+https://twitter.com/JoTikkanen/status/1484800990826139650
+õlu (Keijo, Pyynikki) 
+
+https://twitter.com/VepsaToni/status/1484787936616923136
+meditsiiniõed (palgad)
+
+https://twitter.com/sirvioville/status/1484540085643227146
+xtee (riik, it). Viide: x-road.global
+
+https://twitter.com/TuomasEnbuske/status/1484229981576339468
+eesti (maksud, nato, olümpia)
+
+https://twitter.com/TheaEkholm/status/1484492044374581248
+rahvastik Viide: helsinginginuutiset.fi
+
+https://twitter.com/MoisionPekka/status/1484486782544756737
+õlu (õlletootmine, Keijo, Pyynikki) Viide: yle
+
+https://twitter.com/Pasi_Kuoppamaki/status/1484122575072595969
+makromajandus (inflatsioon, eurostat) Viide: eurostat
+
+https://twitter.com/PasiAnteroinen/status/1484113582627430407
+liiklusturvalisus (jalgratas, kiiver)
+
+https://twitter.com/RistoMurto/status/1484112128856539141
+makromajandus (inflatsioon, eurostat) Viide: eurostat
+
+https://twitter.com/MiikkaLuukkonen/status/1484043199240941570 
+investeerimine, taskuhääling #MiikkaLuukkonen #MartinPaasi #Rahapodi
+
+https://soundcloud.com/rahapodi
+
+https://twitter.com/frankares/status/1483753646202499073
+vein (#HeinoGroup, #Brukett, #Bottlescout) Viide: viisitahtea.com
+
+https://twitter.com/HolmalahtiJussi/status/1483457566558638083
+arstid (arstiõpe, tervishoid, rahad)  #JussiHolmalahti
+
+https://twitter.com/EAhtola/status/1483031743775092736  
+maksud #EeroAhtola (Lämpökodit) Viide: investinestonia.com
+
+https://twitter.com/MarjoNiemenmaa/status/1482996875011756036
+koroona (testimine, koolid)
+
+https://twitter.com/pvesterbacka/status/1482849607981879301 
+lennuliinid (Helsinki, Pärnu, Nyxair) Viide: länsiväylä.fi
+
+
+![image](https://user-images.githubusercontent.com/25908778/150691973-e4ea1bd1-a9b5-4b10-96ac-54f1ab636382.png)
+
 # Nädal 2 2022
 
 ![image](https://user-images.githubusercontent.com/25908778/149833105-76009338-c7a1-4e88-a34f-c5f18a64e6a6.png)
@@ -112,3 +171,4 @@ Kes: toivo.ellakvere@gmail.com
 Miks: et jälgida huvaitavaid vestlusi Soome lahe siin ja sealpool
 
 Klikitavad Twitteri lingid: [https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md](https://github.com/TELLAKVERE/EEFINotes2022/blob/main/twitter/notes.md)
+ 
