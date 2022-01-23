@@ -1,6 +1,8 @@
 
 # Eesti kajastused soomekeelses Twitteris   
 
+viro lang:fi -filter:replies
+
 # Nädal 3 2022
 
 ![image](https://user-images.githubusercontent.com/25908778/150692157-baf6f0c3-8f7c-4910-bcfb-5495f75edce9.png)
