@@ -58,7 +58,95 @@ https://twitter.com/pvesterbacka/status/1482849607981879301
 lennuliinid (Helsinki, Pärnu, Nyxair) Viide: länsiväylä.fi
 
 
-![image](https://user-images.githubusercontent.com/25908778/150691973-e4ea1bd1-a9b5-4b10-96ac-54f1ab636382.png)
+xxx
+
+https://twitter.com/HeikkiMLuoma/status/1485204506191220736
+statistika (immigratsioon, wiki)
+
+https://twitter.com/rautava_antti/status/1485188918035292162
+soometumine (RaulRebane, hsfi)
+
+https://twitter.com/janvonheiroth/status/1485167770589446148
+Nato, Paul Poast
+
+https://twitter.com/AkiraRopo/status/1485165812763795458
+soometumine (RaulRebane, hsfi)
+
+https://twitter.com/43Hannu/status/1484843394421739521
+Nato (ps, Kajakallas)
+
+https://twitter.com/HKorsberg/status/1484827406372331525 
+Estonia (MikaWaktari)
+
+https://twitter.com/MiikaArponen/status/1484818187992670214
+nato (saksa, kahurid)
+
+https://twitter.com/MPitkaniitty/status/1484816281094303744
+piir (KristianJaani)
+
+https://twitter.com/mariastenroos/status/1484771738852417537
+nato (saksa, kahurid)
+
+https://twitter.com/HalmeJus/status/1484626644023316487
+nato (saksa, kahurid)
+
+https://twitter.com/TheaEkholm/status/1484492633695297538
+lidl
+
+https://twitter.com/eppuJ/status/1484474238153207809
+nato (soome, Halonen)
+
+https://twitter.com/HSuontama/status/1484204079618347009
+maksud
+
+https://twitter.com/anttironkainen/status/1485247034265415685
+nato (saksa, kahurid)
+
+https://twitter.com/rikukeskirauska/status/1485273880629555202
+soometumine (RaulRebane, hsfi)
+
+
+![image](https://user-images.githubusercontent.com/25908778/150695891-3bf8737b-554b-40fe-9d87-3c992aed54e0.png)
+
+
+
+https://twitter.com/Hannele_V/status/1485151389902901251
+soometumine (RaulRebane, hsfi)
+
+https://twitter.com/MikkoNummelin/status/1485271786413600774
+koroona (pass)
+
+https://twitter.com/juhakala3/status/1484203676587728897
+nato (saksa, kahurid)
+
+https://twitter.com/RalfGrahn/status/1484124120371666947
+nato, kaitseväejuhataja
+
+https://twitter.com/MatilainenJukka/status/1484080723866918912
+narkootikumid
+
+https://twitter.com/VainionpaaEero/status/1483671612222287872
+eriik
+
+https://twitter.com/JP_Latti/status/1483517215475392512
+eurovisioon
+
+https://twitter.com/Finnchod/status/1483491994009747463
+kaitseväejuhataja (Herem, Kivinen)
+
+https://twitter.com/HelenaPilke/status/1483367415471878145
+ajalugu
+
+https://twitter.com/AulaMK/status/1483364810867757067
+euroopaliit (alde, keskusta, reform)
+
+https://twitter.com/MailVeikko/status/1483176627848847364
+maksud, ps
+
+https://twitter.com/JP_Latti/status/1483123483215376387
+eurovisioon
+
+
 
 # Nädal 2 2022
 
