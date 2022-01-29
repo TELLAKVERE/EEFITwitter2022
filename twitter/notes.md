@@ -1,11 +1,61 @@
 
 # Eesti kajastused soomekeelses Twitteris   
 
-viro lang:fi -filter:replies
+
 
 # Nädal 4 2022
 
 
+![image](https://user-images.githubusercontent.com/25908778/151673851-77fbdc93-d4ef-48fa-a72a-e4668d539775.png)
+
+
+https://twitter.com/search?q=viron%20lang%3Afi%20-filter%3Areplies&src=typed_query&f=live
+otsing: viron 
+
+https://twitter.com/Romakka/status/1487090066245791745
+nato (Tuomioja, THIlves, Romakkaniemi)
+
+https://twitter.com/JormaVirtanen/status/1487075964190343174
+nato (THIlves)
+
+https://twitter.com/JormaVirtanen/status/1487074557957750789
+nato (THIlves)
+
+https://twitter.com/lailabrocker/status/1487049576838275077
+haridus (Šotimaa)
+
+https://twitter.com/LehtinenPekka/status/1486971839498883079
+narkootikumid (politsei)
+
+https://twitter.com/mikkhe/status/1486614231369883648
+lörts
+
+https://twitter.com/RuusunenJukka/status/1486336083982000131
+elektriturg (elering, fingrid, Ruusunen)
+
+https://twitter.com/jussisaramo/status/1486022280241102849
+inflatsioon (statistika, vasemmisto, eurostat)
+
+https://twitter.com/linnainen/status/1485733826391334913
+presidendid
+
+https://twitter.com/MLiimatainen/status/1485687581291720704
+greenpeace (metsaraie, rmk, postimees)
+
+https://twitter.com/JormaVirtanen/status/1485603459101507584
+peaminister (Kallas, nato, yle, ft)
+
+https://twitter.com/HeikkiOjala/status/1485597816894464002
+nato (Kallas, yle, ft)
+
+https://twitter.com/JormaVirtanen/status/1487110151593242627
+kommunistid (AkiLinden, sdp, Narva)
+
+https://twitter.com/M_PekolaSjoblom/status/1487366777663336450 
+eriik, ehääletus
+
+https://twitter.com/jmkorhonen/status/1485553997654241288
+maksud, sotsiaaltoetused
 
 
 ![image](https://user-images.githubusercontent.com/25908778/151672902-0d942805-231f-4f6d-8e8e-08eaaa5e6b5e.png)
