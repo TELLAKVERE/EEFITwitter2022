@@ -3,6 +3,43 @@
 
 viro lang:fi -filter:replies
 
+# Nädal 4 2022
+
+
+
+
+![image](https://user-images.githubusercontent.com/25908778/151672902-0d942805-231f-4f6d-8e8e-08eaaa5e6b5e.png)
+
+
+https://twitter.com/search?q=virossa%20lang%3Afi%20-filter%3Areplies&src=typed_query&f=live
+otsing: virossa
+
+https://twitter.com/nenoheikki/status/1486395906803089411
+hundid (statistika, jahimehed)
+
+https://twitter.com/SiljaHu/status/1486382200060792834
+hundid (statistika, jahimehed)
+
+https://twitter.com/TheaEkholm/status/1485550517350805506
+valimised (soome, statistika, helsinginsanomat)
+
+https://twitter.com/TimoKataja/status/1487365381836713984
+turism (reisimine)
+
+https://twitter.com/HarriSyrjalaine/status/1487134001395552257
+tunnel (ametiühing, steik, reisimine)
+
+https://twitter.com/KatriSarlund/status/1486985836738625541 
+narkootikumid (politsei, rohelised)
+
+https://twitter.com/KarnaMikko/status/1486721297446961153
+hundid (statistika, jahimehed, keskusta)
+
+https://twitter.com/PetriVoltti/status/1486425484032450570
+startupid
+
+
+
 # Nädal 3 2022
 
 ![image](https://user-images.githubusercontent.com/25908778/150692157-baf6f0c3-8f7c-4910-bcfb-5495f75edce9.png)
