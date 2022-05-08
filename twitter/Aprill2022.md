@@ -35,7 +35,7 @@ https://www.hs.fi/politiikka/art-2000008735180.html
 https://kauppakamari.fi/tiedote/keskuskauppakamari-riippuvuus-venajan-energiatuonnista-katkaistava-uudet-toimet-energiaomavaraisuuden-vahvistamiseksi-perusteltuja/
 
 
-Venäläiset Yandex-taksit kiellettiin Virossa – näin kävi Tallinnan taksihinnoillehttps://www.lansivayla.fi/paikalliset/4574216?utm_source=dlvr.it&utm_medium=twitter
+Venäläiset Yandex-taksit kiellettiin Virossa – näin kävi Tallinnan taksihinnoille https://www.lansivayla.fi/paikalliset/4574216?utm_source=dlvr.it&utm_medium=twitter
 
 Eurooppa-kirje: Inflaatio ampaisi Virossa pilviin ja graavilohi kallistui lähes kolmanneksella yhdessä yössä – se kirpaisee jo keskituloisiakin
 https://yle.fi/uutiset/3-12421914 
@@ -57,7 +57,8 @@ Michelini tasemel restoranid
 https://moottori.fi/matkailu/jutut/kohta-se-on-totta-viron-ravintolat-michelin-tahtikartalle/
 https://www.sttinfo.fi/tiedote/viron-ravintolat-michelin-tahtikartalle
 
-Elinkeinoministeri Mika Lintilä: ”Matkailussa mentaalisen viruksen tappaminen on suurin haaste” - Suomen ja Viron ministerit kannustavat kansalaisiaan matkailuunhttps://www.helsinginuutiset.fi/teemat/4547745 
+Elinkeinoministeri Mika Lintilä: ”Matkailussa mentaalisen viruksen tappaminen on suurin haaste” - Suomen ja Viron ministerit kannustavat kansalaisiaan matkailuun 
+https://www.helsinginuutiset.fi/teemat/4547745 
 https://www.hs.fi/talous/art-2000008743598.html?share=8e90d718493700d3e1aab071a362ad9b
 https://www.kauppalehti.fi/uutiset/elinkeinoministeri-lintila-varoittaa-kalliista-talvesta-ja-bensan-hinnasta-tulemme-maksamaan-putinin-hintaa/2b54e209-79a3-487d-a47d-7e40ed0aea80
 https://twitter.com/TEM_uutiset/status/1512388987582922753
