@@ -4,7 +4,7 @@
 
 # POLIITIKA, ÜHISKOND
 
-Viron toinen aseapulähetys saapunut Ukrainaan, mukana Suomelta ostetut kenttätykit
+Viron toinen aseapulähetys saapunut Ukrainaan, mukana Suomelta ostetut kenttätykit 
 https://www.hs.fi/ulkomaat/art-2000008734609.html
 https://yle.fi/uutiset/3-12392558?origin=rss
 
@@ -28,7 +28,7 @@ https://www.iltalehti.fi/politiikka/a/6eaed136-e6bd-4cc1-803a-7294ebf7a140
 
 # MAJANDUS
 
-LNG laev ja vedelgaas
+LNG laev ja vedelgaas 
 https://www.is.fi/politiikka/art-2000008735163.html
 https://yle.fi/uutiset/3-12394371
 https://www.hs.fi/politiikka/art-2000008735180.html
@@ -53,7 +53,7 @@ https://www.helsinginuutiset.fi/teemat/4574424
 
 # TURISM
 
-Michelini tasemel restoranid
+Michelini tasemel restoranid 
 https://moottori.fi/matkailu/jutut/kohta-se-on-totta-viron-ravintolat-michelin-tahtikartalle/
 https://www.sttinfo.fi/tiedote/viron-ravintolat-michelin-tahtikartalle
 
