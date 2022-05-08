@@ -64,9 +64,9 @@ https://twitter.com/TEM_uutiset/status/1512388987582922753
 
 # MIS, KUIDAS
 
-Mis: millised on ajaleheartiklid Eestist, millele soomekeelses twitter viidatakse. 
+Mis: millised on ajaleheartiklid Eestist, millele soomekeelses twitteris viidatakse. 
 
-Kuidas: otsing  twitteris: viron, virossa +lang:fi
+Kuidas: otsing  twitteris märksõnadega viron, virossa +lang:fi
 
 Kes: toivo.ellakvere@gmail.com
 
