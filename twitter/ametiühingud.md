@@ -13,7 +13,7 @@ Eestis vähe ametiühingute liikmeid, Soomes palju.
 
 ## meediakaja
 
-Eestis paistab meedias peamiselt silam transporditöötajate ametiühing, aga ka arstid. 
+Eestis paistab meedias peamiselt silma transporditöötajate ametiühing, aga ka arstid. 
 Soomes blokitakse sadamate tööd, võideldakse haiglates palgatõusu eest jms. 
 
 # MÄRKSÕNAD, SÕNASTIK
