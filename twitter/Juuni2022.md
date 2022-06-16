@@ -36,6 +36,12 @@ https://www.hs.fi/ulkomaat/art-2000008863225.html
 
 # MAJANDUS 
 
+Isamaa elektrituru reform pole koalitsioonikõnelustel heakskiitu saanud
+via Pekka Salomaa
+https://twitter.com/PekkaSalomaa/status/1537424029287587842
+
+
+
 # KULTUUR
 
 Teflon Brothers pisti Juice Leskisen Eesti-kappaleen uusiksi - Musiikki - Ilta-Sanomat (via Kustaa Valtonen)
@@ -45,6 +51,10 @@ https://www.is.fi/musiikki/art-2000008858330.html
 
 # TURISM 
 
+# LISAKS
+
+Eesti - Soome laevaliiklus CO2 vabaks. Ulla Tapaninen. 
+https://twitter.com/UTapaninen/status/1535237174660153344
 
 # MIS, KUIDAS
 
