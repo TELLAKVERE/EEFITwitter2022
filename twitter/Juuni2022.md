@@ -81,6 +81,19 @@ Roolissani YK:n “Every Woman Every Child” -strategian puolestapuhujana keski
 Aurora 2022 -tulevaisuustapahtuman pääpuhujaksi Viron entinen presidentti Kersti Kaljulaid – Ylen tiedotteet – yle.fi ***
 https://yle.fi/aihe/a/20-10003002
 
+Suomessa otetaan nyt mallia Viron kouluista
+https://www.iltalehti.fi/kotimaa/a/2e48ebbc-ee6e-44b6-8130-3761a0ba9d91
+https://twitter.com/jarsjo/status/1537418782859214848
+
+Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat.
+Sonja Ulma on Twitter: "Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat./ Twitter
+https://twitter.com/sonjaulma/status/1536963441667317761
+
+Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. 
+Näillä 5 keinolla Suomi voi nousta takaisin huipulle
+Kemianteollisuus on Twitter: "Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. Näillä 5 keinolla Suomi voi nousta takaisin huipulle ⬇️" / Twitter
+https://twitter.com/Kemianteollisuu/status/1536957366243143681
+
 # DIPLOMAATIA, SUHTED
 
 Valtioneuvosto | Statsrådet on Twitter: "Suomen, Ruotsin, Tanskan, Viron, Latvian, Liettuan ja Irlannin edustajat keskustelivat Eurooppa-neuvoston aiheista ennen kokouksen alkua. Maiden tapaaminen ennen Eurooppa-neuvostoa on muodostunut perinteeksi. 
@@ -91,6 +104,13 @@ https://twitter.com/KokkonenPekka/status/1537795913367928834
 
 Tänään teimme @laureauas rikosseuraamusalan sosionomiopiskelijoiden kanssa vierailun Tallinnan vankilaan. Mielenkiintoinen tutustumiskäynti. Keskustelu jatkuu Suomen ja Viron rikosseuraamustyöstä. #rikosseuraamustyö #vankila 
 https://twitter.com/JanikaLind/status/1537767031042359299
+
+Luontopalvelut on Twitter: "Ilolla mukana #yhteistyö #Viro #monimuotoinenluonto" / Twitter
+https://twitter.com/Luontopalvelut/status/1536999835932536833
+
+Helsingin toimistollamme on ollut tällä viikolla ihanan vilkasta. Tänään saimme odotettuja vieraita KPMG:n Tallinnan toimistosta, kun Viron ja Suomen ESG-asiantuntijamme kokoontuivat yhteen ajankohtaisten aiheiden äärelle.
+KPMG Finland on Twitter: "Helsingin toimistollamme on ollut tällä viikolla ihanan vilkasta. Tänään saimme odotettuja vieraita KPMG:n Tallinnan toimistosta, kun Viron ja Suomen ESG-asiantuntijamme kokoontuivat yhteen ajankohtaisten aiheiden äärelle. #kpmglife #kpmgpeople #ESG https://t.co/CsqHLTucuS" / Twitter
+https://twitter.com/KPMGFinland/status/1537397089717604353
 
 # MAJANDUS, INFRA
 
