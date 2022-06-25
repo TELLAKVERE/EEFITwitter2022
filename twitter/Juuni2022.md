@@ -1,3 +1,4 @@
+
 # POLIITIKA, ÜHISKOND
 
 Viro aikoo sallia rajan sulkemisen turvapaikanhakijoilta hätätilanteessa | Verkkouutiset (via Jocka Träskbäck Kokoomus)
@@ -33,7 +34,11 @@ https://www.mtvuutiset.fi/artikkeli/viron-hallituksessa-myllerrys-keskustapuolue
 Viron presidentti erotti keskustapuolueen ministerit hallituksesta pääministerin pyynnöstä - Ulkomaat | HS.fi
 https://www.hs.fi/ulkomaat/art-2000008863225.html
 
-# MILITAAR 
+Kirstin koulussa Espoon Suvelassa 69 prosenttia oppilaista on vieraskielisiä - Kaupunki | HS.fi
+https://www.hs.fi/kaupunki/art-2000008841213.html?share=ae881da70ab8400075dc034d25f38cc5
+
+
+# MILITAAR (NATO, VENEMAA)
 
 Viron Kaja Kallas maalasi hurjia uhkakuvia Tallinnan tuhosta – pelko Venäjän hyökkäyksestä on liioiteltu, mutta aito, arvioivat asiantuntijat
 https://yle.fi/uutiset/3-12508449
@@ -65,12 +70,29 @@ https://www.is.fi/ulkomaat/art-2000008903700.html
 Pääkirjoitus: Putinin vaarallisuus saa uudet mittasuhteet
 https://www.iltalehti.fi/paakirjoitus/a/2c2bb9c9-4cab-487a-945f-2fe4b9e4c1dd
 
-# DIPLOMAATIA
+Viron yleisradio: Venäläinen helikopteri lensi luvatta Viron ilmatilassa - MTVuutiset.fi
+https://www.mtvuutiset.fi/artikkeli/viron-yleisradio-venalainen-helikopteri-lensi-luvatta-viron-ilmatilassa/8455810
+
+Viron pieni vihreä puolue tähyää pääsyä takaisin Riigikoguun ***
+https://verdelehti.fi/2022/06/18/viron-pieni-vihrea-puolue-tahyaa-paasya-takaisin-riigikoguun%ef%bf%bc/
+https://twitter.com/OsmoSoininvaara/status/1538555673461633026
+
+Roolissani YK:n “Every Woman Every Child” -strategian puolestapuhujana keskityn naisten, lasten ja nuorten hyvinvointiin ympäri maailman, joten minulle on kunnia olla tämän vuoden Aurora-tapahtuman pääpuhuja”, sanoo Kaljulaid.
+Aurora 2022 -tulevaisuustapahtuman pääpuhujaksi Viron entinen presidentti Kersti Kaljulaid – Ylen tiedotteet – yle.fi ***
+https://yle.fi/aihe/a/20-10003002
+
+# DIPLOMAATIA, SUHTED
 
 Valtioneuvosto | Statsrådet on Twitter: "Suomen, Ruotsin, Tanskan, Viron, Latvian, Liettuan ja Irlannin edustajat keskustelivat Eurooppa-neuvoston aiheista ennen kokouksen alkua. Maiden tapaaminen ennen Eurooppa-neuvostoa on muodostunut perinteeksi. 
 https://twitter.com/valtioneuvosto/status/1539968885490733056
 
-# MAJANDUS 
+Poliisikoiralaitoksen ja Viron poliisi-ja rajakoiralaitoksen kanssa on kestänyt vuosikymmeniä. Tänään sitä jälleen syvennettiin vaihtamalla ajatuksia/ideoita kehittymisestä ja yhteistyöstä. #poliisikoira #politsei
+https://twitter.com/KokkonenPekka/status/1537795913367928834
+
+Tänään teimme @laureauas rikosseuraamusalan sosionomiopiskelijoiden kanssa vierailun Tallinnan vankilaan. Mielenkiintoinen tutustumiskäynti. Keskustelu jatkuu Suomen ja Viron rikosseuraamustyöstä. #rikosseuraamustyö #vankila 
+https://twitter.com/JanikaLind/status/1537767031042359299
+
+# MAJANDUS, INFRA
 
 Isamaa elektrituru reform pole koalitsioonikõnelustel heakskiitu saanud | Majandus | ERR
 https://www.err.ee/1608631471/isamaa-elektrituru-reform-pole-koalitsioonikonelustel-heakskiitu-saanud
@@ -79,6 +101,12 @@ https://twitter.com/PekkaSalomaa/status/1537424029287587842
 Suomen ja Viron välille suunnitellaan LNG:tä käyttävää junalauttaa: kyytiin mahtuisi yli kilometrin edestä junavaunuja | Talouselämä
 https://www.talouselama.fi/uutiset/te/c67681f1-066c-4905-942d-2081dfe3c35c
 
+Tuulivoimaväki tuskailee: Sadan miljardin euron investointien edessä on ongelma, jonka Viro ratkaisi 75 miljoonalla eurolla
+https://yle.fi/uutiset/3-12500759
+https://twitter.com/osma/status/1538915088157102080
+
+Asiantuntijat uskovat: Sähköinen lentäminen alkaa vuosikymmenen lopulla – ”Voisi sopia Viron, Maarianhaminan tai Merenkurkun ylittäville lennoille” | Tekniikka&Talous ***
+https://www.tekniikkatalous.fi/uutiset/tt/84c452e0-1e83-4e14-8cf5-bd2f9eece3ff?utm_term=Autofeed&utm_medium=Social&utm_source=Twitter#Echobox=1655394643
 
 # KULTUUR
 
@@ -89,6 +117,9 @@ https://www.is.fi/musiikki/art-2000008858330.html
 
 Mitä ihmettä? Viron MacGyver ajoi MM-rallia ilman vaihdekeppiä
 https://www.iltalehti.fi/ralli/a/c63de4a2-248d-4cb1-8ced-55c043126681
+
+Nikolai Grjazin osallistuminen Viron MM-rallin halutaan estää
+https://www.iltalehti.fi/ralli/a/55702b89-f4e0-4bfb-99f3-eef183ba364c
 
 # TURISM 
 
