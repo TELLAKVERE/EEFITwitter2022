@@ -18,15 +18,15 @@ Soomes blokitakse sadamate tööd, võideldakse haiglates palgatõusu eest jms.
 
 # MÄRKSÕNAD, SÕNASTIK
 
-Ametiühingute keskliit - ühendab mitut ametiühingut
+Ametiühingute keskliit (EE) - ühendab mitut ametiühingut
 https://www.eakl.ee/meist
 
-Eiki Nestor - ex-EKP, ex-ametiühing, sotsiaaldemokraat. 
+Eiki Nestor (EE)  - ex-EKP, ex-ametiühing, sotsiaaldemokraat. 
 
-Kohalikud lepingud (paikkallissopimus, paikkalinen sopimus) - kui seda lubatakse siis saabub maailmalõpp, piirkondlikud ja või erialased kokkulepped töötajate ja tööandjate vahel.
+Kohalikud lepingud (paikkallissopimus, paikkalinen sopimus) (FI) - kui seda lubatakse siis saabub maailmalõpp, piirkondlikud ja või erialased kokkulepped töötajate ja tööandjate vahel.
 
-Pangatöötajate ametiühing - loodi aga sinna kuulus 2 liiget. 
+Pangatöötajate ametiühing (EE) - loodi aga sinna kuulus 2 liiget. 
 
-Peep Peterson - ametiühinguboss, sotsiaaldemokraat. 
+Peep Peterson (EE) - ametiühinguboss, sotsiaaldemokraat. 
 
-Sotsiaaldemokraadid - raske on tõmmata piiri, kus algab ametiühingu tegevus ja lõpeb sotsiaaldemokraatia, kehtib ka vastupidi. 
+Sotsiaaldemokraadid (FI) - raske on tõmmata piiri, kus algab ametiühingu tegevus ja lõpeb sotsiaaldemokraatia, kehtib ka vastupidi. 
