@@ -38,6 +38,29 @@ Kirstin koulussa Espoon Suvelassa 69 prosenttia oppilaista on vieraskielisiä - 
 https://www.hs.fi/kaupunki/art-2000008841213.html?share=ae881da70ab8400075dc034d25f38cc5
 
 
+Viron pieni vihreä puolue tähyää pääsyä takaisin Riigikoguun ***
+https://verdelehti.fi/2022/06/18/viron-pieni-vihrea-puolue-tahyaa-paasya-takaisin-riigikoguun%ef%bf%bc/
+https://twitter.com/OsmoSoininvaara/status/1538555673461633026
+
+Roolissani YK:n “Every Woman Every Child” -strategian puolestapuhujana keskityn naisten, lasten ja nuorten hyvinvointiin ympäri maailman, joten minulle on kunnia olla tämän vuoden Aurora-tapahtuman pääpuhuja”, sanoo Kaljulaid.
+Aurora 2022 -tulevaisuustapahtuman pääpuhujaksi Viron entinen presidentti Kersti Kaljulaid – Ylen tiedotteet – yle.fi ***
+https://yle.fi/aihe/a/20-10003002
+
+Suomessa otetaan nyt mallia Viron kouluista
+https://www.iltalehti.fi/kotimaa/a/2e48ebbc-ee6e-44b6-8130-3761a0ba9d91
+https://twitter.com/jarsjo/status/1537418782859214848
+
+Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat.
+Sonja Ulma on Twitter: "Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat./ Twitter
+https://twitter.com/sonjaulma/status/1536963441667317761
+
+Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. 
+Näillä 5 keinolla Suomi voi nousta takaisin huipulle
+Kemianteollisuus on Twitter: "Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. Näillä 5 keinolla Suomi voi nousta takaisin huipulle " / Twitter
+https://twitter.com/Kemianteollisuu/status/1536957366243143681      
+
+
+
 # MILITAAR (NATO, VENEMAA)
 
 Viron Kaja Kallas maalasi hurjia uhkakuvia Tallinnan tuhosta – pelko Venäjän hyökkäyksestä on liioiteltu, mutta aito, arvioivat asiantuntijat
@@ -72,27 +95,6 @@ https://www.iltalehti.fi/paakirjoitus/a/2c2bb9c9-4cab-487a-945f-2fe4b9e4c1dd
 
 Viron yleisradio: Venäläinen helikopteri lensi luvatta Viron ilmatilassa - MTVuutiset.fi
 https://www.mtvuutiset.fi/artikkeli/viron-yleisradio-venalainen-helikopteri-lensi-luvatta-viron-ilmatilassa/8455810
-
-Viron pieni vihreä puolue tähyää pääsyä takaisin Riigikoguun ***
-https://verdelehti.fi/2022/06/18/viron-pieni-vihrea-puolue-tahyaa-paasya-takaisin-riigikoguun%ef%bf%bc/
-https://twitter.com/OsmoSoininvaara/status/1538555673461633026
-
-Roolissani YK:n “Every Woman Every Child” -strategian puolestapuhujana keskityn naisten, lasten ja nuorten hyvinvointiin ympäri maailman, joten minulle on kunnia olla tämän vuoden Aurora-tapahtuman pääpuhuja”, sanoo Kaljulaid.
-Aurora 2022 -tulevaisuustapahtuman pääpuhujaksi Viron entinen presidentti Kersti Kaljulaid – Ylen tiedotteet – yle.fi ***
-https://yle.fi/aihe/a/20-10003002
-
-Suomessa otetaan nyt mallia Viron kouluista
-https://www.iltalehti.fi/kotimaa/a/2e48ebbc-ee6e-44b6-8130-3761a0ba9d91
-https://twitter.com/jarsjo/status/1537418782859214848
-
-Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat.
-Sonja Ulma on Twitter: "Viron oppilaista 30 % katsoo luonnontiedeaiheisia ohjelmia, Suomen 12 %. 24 % virolaisista oppilaista lukee luonnontieteisiin liittyviä lehtiä tai artikkeleita, suomalaisista 10 %. Kehitys on hälyttävä. Miten #ilmastonmuutos pysäytetään ilman LUMA-osaajia? Suomesta nämä katoavat./ Twitter
-https://twitter.com/sonjaulma/status/1536963441667317761
-
-Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. 
-Näillä 5 keinolla Suomi voi nousta takaisin huipulle
-Kemianteollisuus on Twitter: "Mitä Viro tekee oikein ja Suomi väärin, kun oppimistulokset menevät eri suuntiin? Suomalaisten 15-vuotiaiden #Pisa-tulokset ovat heikentyneet vuodesta 2006. Erityisesti luonnontieteiden #osaaminen on heikentynyt. Näillä 5 keinolla Suomi voi nousta takaisin huipulle ⬇️" / Twitter
-https://twitter.com/Kemianteollisuu/status/1536957366243143681
 
 # DIPLOMAATIA, SUHTED
 
@@ -148,11 +150,6 @@ https://www.iltalehti.fi/ralli/a/55702b89-f4e0-4bfb-99f3-eef183ba364c
 20 vuotta sitten: Neuvostoajan kommunistivalta julistettiin Virossa rikolliseksi – Kansan Uutiset
 https://www.kansanuutiset.fi/artikkeli/4749766-20-vuotta-sitten-neuvostoajan-kommunistivalta-julistettiin-virossa-rikolliseksi
 
-# LISAKS
-
-Eesti - Soome laevaliiklus CO2 vabaks. Ulla Tapaninen. 
-https://twitter.com/UTapaninen/status/1535237174660153344
-
 # MIS, KUIDAS
 
 Allikad: verkkouutiset, HU, hs, is, il, mtv, ft, err
@@ -160,9 +157,7 @@ Allikad: verkkouutiset, HU, hs, is, il, mtv, ft, err
 Mis: millised on ajaleheartiklid Eestist, millele soomekeelses twitteris viidatakse.
 
 Kuidas: otsing twitteris märksõnadega viron, virossa +lang:fi +filter:links
-"Via ..." viide on lisatud kui tegemist poliitiku või ajakirjanikuga. 
-V.a.: EE suunaga meediakanalid (Estofennia). 
 
 Kes: toivo.ellakvere@gmail.com
 
-Uuendatud: 07.06.2022, 24.06.2022
+Uuendatud: 07.06.2022, 24.06.2022, 10.07.2022
